@@ -1,2 +1,2 @@
-# Ulykpanov.github.io
+# Ulykpanov.Azizbek
 Мой первый опубликованный сайт
